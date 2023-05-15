@@ -1,4 +1,18 @@
-### vertical-bounce-handler-at-terra-knot-from-knot-character-through-boundd-layer
+### vertical-bounce-handler-at-terra-knot-from-knot-character-through-boundd-closin
+
+* Thx to xakon \ aloha \ awf \ gaehka \ vata \ fas
+*
+
+* Также благодарим Юленьку Анашенко \ это одна из самых маленьких читательниц \ пожелаем роста и чтобы потолки в дом помещались
+
+* И another зиночка з Украiнi remind\ \ правильно не bloody, а bladi \
+
+* И правильный ответ первой назвала Ника \ Никак, blad\ 
+
+* Благодарим cos\y\in\ka
+
+* All your belief cannot\ absolve your sin
+*
 
 * Я вообще очень люблю \ котят 
 * 
